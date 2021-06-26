@@ -1,2 +1,2 @@
-Contact: @LolTDMMMOs#6870 on Discord : @LolTDMMMOs on Telegram : Email: paymentstdm@gmail.com | Website: https://tdm.is-a.dev
+Contact: @Biometrical#6870 on Discord : @Biometrical on Telegram : Email: paymentstdm@gmail.com | Website: https://tdm.is-a.dev
 
