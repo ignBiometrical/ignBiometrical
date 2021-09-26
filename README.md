@@ -1,2 +1,2 @@
-Contact: @Biometrical#6870 on Discord : @Biometrical on Telegram : Email: paymentstdm@gmail.com | Website: https://tdm.is-a.dev
+Contact: @Biometrical#0001 on Discord | Email: admin@biometrical.systems | Website: https://biometrical.systems
 
